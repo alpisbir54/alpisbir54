@@ -4,10 +4,8 @@ I'm Alp, I design and build tech at the intersection of AI and audio.
 
 I have a bachelor's in Economics & Data Science from USC.
 
-I produce and spin techno records :)
+I produce and spin techno records :) 
 
-============
-reach me at: 
+Ritz Radio - Los Perros
 
-isbiralp@gmail.com — Istanbul / LA
-
+Istanbul / LA
