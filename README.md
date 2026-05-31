@@ -4,7 +4,7 @@ I'm Alp, I design and build tech at the intersection of AI and audio.
 
 I have a bachelor's in Economics & Data Science from USC.
 
-I produce and spin techno records :) 
+I produce and spin techno and house records :) 
 
 Ritz Radio - Los Perros
 
